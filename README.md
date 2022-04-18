@@ -10,13 +10,13 @@
 
 - 🌱 I’m currently learning **Backend courses**
 
-- 📝 I regularly write articles on [https://t.me/yakubov_blog_uz](https://t.me/yakubov_blog_uz)
+- 📝 I regularly write articles on [click here](https://t.me/yakubov_blog_uz)
 
 - 💬 Ask me about **react vue and gsap**
 
 - 📫 How to reach me **asilbekyakubov0525@gmail.com**
 
-- 📄 Know about my experiences [https://t.me/yakubov_blog_uz](https://t.me/yakubov_blog_uz)
+- 📄 Know about my experiences [click here](https://t.me/yakubov_blog_uz)
 
 - ⚡ Fun fact **I love to play football and playing guitar**
 
